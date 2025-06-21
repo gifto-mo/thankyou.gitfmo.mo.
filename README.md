@@ -1,0 +1,1 @@
+# thankyou.gitfmo.mo.
